@@ -1,0 +1,1 @@
+kodu yazdım kaydettim
